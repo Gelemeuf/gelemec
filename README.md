@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gelemec my real name is Thomas LEFRANC
 - 👀 I’m interested in developing. (Anything (Really anything))
-- 🌱 I’m currently learning (Anything (Really anything))
-- 💞️ I’m looking to collaborate on some projects to increase my skills and product some new interressant things.
-- 📫 You can reach me at thomaslefranc33@gmail.com (im not on twitter, instagram, ...)
+- 🌱 I’m currently learning some things.
+- 💞️ I’m looking to collaborate on some projects to increase my skills and product some new interresting things.
+- 📫 You can contact me at thomaslefranc33@gmail.com (im not on twitter, instagram, ...)
