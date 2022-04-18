@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @gelemec my real name is Thomas LEFRANC
+- 👋 Hi, I’m @gelemeuf my real name is Thomas LEFRANC
 - 👀 I’m interested in developing. (Anything (Really anything))
 - 🌱 I’m currently learning computer science.
 - 💞️ I’m looking to collaborate on some projects to increase my skills and product some new interresting things.
