@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gelemeuf my real name is Thomas LEFRANC
-- 👀 I’m interested in developing. (Anything (Really anything))
+- 👀 I’m interested in developing. (Everything (Really everything))
 - 🌱 I’m currently learning computer science.
 - 💞️ I’m looking to collaborate on some projects to increase my skills and product some new interresting things.
 - 📫 You can contact me at thomaslefranc33@gmail.com (im not on twitter, instagram, ...)
